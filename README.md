@@ -1,1 +1,4 @@
 # INFORMACION
+SOFTYFN YA NO EXISTE A HORA ES FASTTFN
+
+https://discord.io/FasttFN
